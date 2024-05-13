@@ -49,7 +49,7 @@ cuatro. lo normal ahora es que todo tenga que validarse y calcularse para que se
 
 cinco. así se destruyen ecosistemas completos con aprobación de algún estudio medioambiental certificado por las mejores universidades; así andan las industrias farmacéuticas haciendo experimentos sobre los cuerpos que la civilización no reclama como propios; así es que vivimos en una sociedad que se autopercibe diversa, pero que sistemáticamente reproduce los roles con una eficiencia que nunca antes había existido. y luego lo llaman progreso y lo venden como un avance de la humanidad, como si cualquier cosa de éstas tuviera un mínimo de utilidad afuera del mercado..
 
-seis. solamente el deseo por acelerar dictamina lo que está bien; y solamente está bien lo que corresponde con ese deseo. la tendencia de las masas de consumidores son mecánicas y cuantificables..
+seis. solamente el deseo por acelerar dictamina lo que está bien; y solamente está bien lo que corresponde con ese deseo. las tendencias de las masas de consumidores son mecánicas y cuantificables..
 
 siete. desconfío de la moral, desconfío de las soluciones, desconfío de la esperanza. soy partidario del abandono: dejar de esforzarse, valorar el tiempo muerto, habitar la depresión, no inventar ganas donde no las hay, hacer solamente lo que sea inmediato, improvisar..
 
